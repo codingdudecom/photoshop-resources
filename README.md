@@ -9,6 +9,6 @@ This is an amazing pack containing 90 JPG images with very subtle geometric patt
 
 ## Photoshop text effects
 
-**20+ [Halloween Text](http://www.psd-dude.com/tutorials/resources/20-terrifying-halloween-text-effects-photoshop-tutorials.aspx) Tutorials
+**20\+ [Halloween Text](http://www.psd-dude.com/tutorials/resources/20-terrifying-halloween-text-effects-photoshop-tutorials.aspx) Tutorials
 
 Check out this list with over 20 terrifying Halloween text effects Photoshop tutorials and layer styles. In this list I tried gathering the best Halloween Photoshop tutorials and text styles. If you want to create really scary typography for posters, flyers, here is an amazing source of inspiration. I also added free Halloween text styles if you want to obtain great looking results more rapidly.
