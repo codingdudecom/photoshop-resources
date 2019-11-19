@@ -15,6 +15,6 @@ Check out this list with over 20 terrifying Halloween text effects Photoshop tut
 
 ## Free Webfonts
 
-** +50 [Christmas fonts](https://www.mockofun.com/tutorials/christmas-fonts/) that you can use online **
+**+50 [Christmas fonts](https://www.mockofun.com/tutorials/christmas-fonts/) that you can use online**
 
 Are you looking for Christmas fonts? We’ve prepared an awesome list with free Christmas fonts that you can use for personal & commercial projects! These Christmas fonts are both Desktop Fonts and Web Fonts.
